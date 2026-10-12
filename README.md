@@ -36,7 +36,6 @@
 
 💼 LinkedIn: www.linkedin.com/in/felipe-ribeiro-543103124
 
-🔗 GitHub: https://github.com/felipe-g-ribeiro
 
 ---
 
